@@ -1,1 +1,0 @@
-# vertyz-privacy-policy
